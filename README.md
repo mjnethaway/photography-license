@@ -16,7 +16,7 @@ If you are a person not running a business it’s likely that the Creative Commo
 
 If you are a company or individual making money from what you are doing it’s likely the License to Copyright applies to you.
 
-Please contact me at mjnethaway-uw@gmail.com for all licensing questions, requests or if the information above isn’t clear.
+Please contact me at mjnethaway.uw@gmail.com for all licensing questions, requests or if the information above isn’t clear.
 
 Thanks
 
