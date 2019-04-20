@@ -2,7 +2,7 @@
 Thank You for your interest in my photography.  Licensing my work is easy.
 
 ## CREATIVE COMMONS LICENSE
-With a creative commons license you are allow to share, copy, distribute and transmit my images provided you give attribution to Matthew J. Nethaway along with the image.  The image must not be used for commercial purposes under any circumstances.
+With a creative commons license you are allowed to share, copy, distribute and transmit my images provided you give attribution to Matthew J. Nethaway along with the image.  The image must not be used for commercial purposes under any circumstances.
 
 Acceptable uses of the Creative Commons License:  An individual using an image as a desktop wallpaper, in your personal blog post about a relevant topic, or in a school project.
 
